@@ -22,16 +22,16 @@ i lobe men
 || 
 [color my tree!](https://colormytree.me/2024/01JEB5ERZQF90G9505BHQZKS9S)
 ||
-[my wall of text :3](https://walloftext.co/gay-men-at-your-area)
+[my wall of text !](https://walloftext.co/gay-men-at-your-area)
 
 ![Untitled4_20241220140114](https://github.com/user-attachments/assets/3b12bc77-7dab-4a1d-ae33-5553dbfc85f5)
 
 
 [support gaza!](https://rentry.co/hearts4gaza)
 ||
-[shared rentry with sol :3](https://rentry.co/sharedbetweengays)
+[shared rentry with leon >_<](https://rentry.co/sharedbetweengays)
 ||
-[RENTRY (THANKS SOL 4 THE RENTRY !!)](https://rentry.co/kai-angel)
+[rentry<3 (thank you leon 4 this!!<3)](https://rentry.co/kai-angel)
 
 ---
 
