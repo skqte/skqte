@@ -3,7 +3,7 @@ cleans dishes ahaha....!!
 
 ![IMG_5865](https://github.com/user-attachments/assets/ed075c87-9c34-47fb-afd0-1a42ac86135f)
 ![Untitled4_20241220135859](https://github.com/user-attachments/assets/31710c1c-cb44-46f0-972d-3b7b4d00c369)
-![Untitled4_20241220140003](https://github.com/user-attachments/assets/d8415985-9df1-4423-bca7-a9a53f0b5012)
+
 
 i lobe men
 
