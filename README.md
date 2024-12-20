@@ -1,9 +1,13 @@
 
-cl3ans dishes ahaha....!!
+cleans dishes ahaha....!!
 
 ![IMG_5865](https://github.com/user-attachments/assets/ed075c87-9c34-47fb-afd0-1a42ac86135f)
 ![Untitled4_20241220135859](https://github.com/user-attachments/assets/31710c1c-cb44-46f0-972d-3b7b4d00c369)
 ![Untitled4_20241220140003](https://github.com/user-attachments/assets/d8415985-9df1-4423-bca7-a9a53f0b5012)
+
+i lobe men
+
+-----
 
 
 - im skate or karl, but i go by a lot of names, pls dont use my old name (lennox) unless friends / close, *i like nicknames even tho theyre stupid ..!!*
@@ -35,3 +39,5 @@ cl3ans dishes ahaha....!!
 
 ![Untitled6_20241220140350](https://github.com/user-attachments/assets/0e73ebce-6000-4287-81c1-f1b9c0e401e2)
 hes so yghaha i love him
+
+**19/9** .<3
