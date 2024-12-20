@@ -1,5 +1,5 @@
 
-
+retheming soon.
 
 ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ![IMG_5808](https://github.com/user-attachments/assets/aa75d245-4e45-4b4b-bc25-2246f4b5c0cd)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![IMG_5801](https://github.com/user-attachments/assets/9f6ee82a-51a6-4df4-a957-2867b5786b4f)
@@ -8,7 +8,7 @@
 so me core
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ![IMG_5802](https://github.com/user-attachments/assets/a9f147b7-1b25-4b36-8823-e5606a63998a)
 
-- My names  : *Karl*, Kaizen , lennox, *kyusaku*, *soda*, koi, *vincent*, *zen*, levi, Xander, *cyber*. and more whatsoever, i like nicknames. *<3*
+- My names  : *skate* , *Karl*, Kaizen , lennox, *kyusaku*, *soda*, koi, *vincent*, *zen*, levi, Xander, *cyber*. and more whatsoever, i like nicknames. *<3*
 - 4*teen* , **iwec** 18+ (***wont hesitate to block immediately if got uncomf or knew***.)
 - [basic **dni** criteria](https://dni-criteria.carrd.co) 
 
