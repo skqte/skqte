@@ -1,27 +1,27 @@
 
-retheming soon.
+cl3ans dishes ahaha....!!
 
-‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ![IMG_5808](https://github.com/user-attachments/assets/aa75d245-4e45-4b4b-bc25-2246f4b5c0cd)
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![IMG_5801](https://github.com/user-attachments/assets/9f6ee82a-51a6-4df4-a957-2867b5786b4f)
-‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎    ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎  ![IMG_5807](https://github.com/user-attachments/assets/c2ae8881-2e37-4656-bbb0-51ad6d4266a1)
+![IMG_5865](https://github.com/user-attachments/assets/ed075c87-9c34-47fb-afd0-1a42ac86135f)
+![Untitled4_20241220135859](https://github.com/user-attachments/assets/31710c1c-cb44-46f0-972d-3b7b4d00c369)
+![Untitled4_20241220140003](https://github.com/user-attachments/assets/d8415985-9df1-4423-bca7-a9a53f0b5012)
 
-so me core
-‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ![IMG_5802](https://github.com/user-attachments/assets/a9f147b7-1b25-4b36-8823-e5606a63998a)
 
-- My names  : *skate* , *Karl*, Kaizen , lennox, *kyusaku*, *soda*, koi, *vincent*, *zen*, levi, Xander, *cyber*. and more whatsoever, i like nicknames. *<3*
-- 4*teen* , **iwec** 18+ (***wont hesitate to block immediately if got uncomf or knew***.)
+- im skate or karl, but i go by a lot of names, pls dont use my old name (lennox) unless friends / close, *i like nicknames even tho theyre stupid ..!!*
+- im 4teen and 18+ iwec, i have had counters with creeps so.
 - [basic **dni** criteria](https://dni-criteria.carrd.co) 
 
 
 
-![Untitled4_20241123205500](https://github.com/user-attachments/assets/d84e0e76-115e-4edf-b9ff-eb7b92c4e3da)
+![Untitled4_20241220140044](https://github.com/user-attachments/assets/e2eccd47-c14e-4e15-a310-d108f87cf5e1)
+
  [atabook!](https://callmeyourangel.atabook.org/)
 || 
 [color my tree!](https://colormytree.me/2024/01JEB5ERZQF90G9505BHQZKS9S)
 ||
 [my wall of text :3](https://walloftext.co/gay-men-at-your-area)
 
-![Untitled4_20241123205515](https://github.com/user-attachments/assets/4f064217-96b9-49a2-b1ff-159398be5e60)
+![Untitled4_20241220140114](https://github.com/user-attachments/assets/3b12bc77-7dab-4a1d-ae33-5553dbfc85f5)
+
 
 [support gaza!](https://rentry.co/hearts4gaza)
 ||
@@ -33,3 +33,5 @@ so me core
 
 
 
+![Untitled6_20241220140350](https://github.com/user-attachments/assets/0e73ebce-6000-4287-81c1-f1b9c0e401e2)
+hes so yghaha i love him
