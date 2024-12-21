@@ -32,7 +32,7 @@ i lobe men
 ||
 [shared rentry with leon >_<](https://rentry.co/sharedbetweengays)
 ||
-[rentry<3 (thank you leon 4 this!!<3)](https://rentry.co/kai-angel)
+[rentry<3 (thank you leon 4 this!!<3 <old>](https://rentry.co/kai-angel)
 
 ---
 
