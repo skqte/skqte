@@ -10,8 +10,8 @@ i lobe men
 -----
 
 
-- skate, karl! yes i do go by a different name every second leav eme alons ://
-- names i go by meow.. : kaizen - kaiser (kai), xander, zen, soda, victor / viktor (vic-vik), rinze - rinne (rin - ren), kyo, kyusaku (kyu), and please dont call me "lennox / len" unless close.
+- ***skate, karl***! yes i do go by a different name every second leav eme alons ://.. close people can call me lennox (len) or victor/viktor i LOVE YOU ALL
+- names i go by meow.. : kaizen - kaiser (kai), xander, *zen, soda*, **victor / viktor (vic-vik)**, rinze - rinne (rin - ren), kyo, kyusaku (kyu), and *please dont call me "lennox / len" unless close.*
 - im **4teen** and 18+ iwec, i have had counters with creeps so.
 - [basic **dni** criteria](https://dni-criteria.carrd.co) 
 
