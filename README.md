@@ -10,8 +10,9 @@ i lobe men
 -----
 
 
-- im skate or karl, but i go by a lot of names, pls dont use my old name (lennox) unless friends / close, *i like nicknames even tho theyre stupid ..!!*
-- im 4teen and 18+ iwec, i have had counters with creeps so.
+- skate, karl! yes i do go by a different name every second leav eme alons ://
+- names i go by meow.. : kaizen - kaiser (kai), xander, zen, soda, victor / viktor (vic-vik), rinze - rinne (rin - ren), kyo, kyusaku (kyu), and please dont call me "lennox / len" unless close.
+- im **4teen** and 18+ iwec, i have had counters with creeps so.
 - [basic **dni** criteria](https://dni-criteria.carrd.co) 
 
 
